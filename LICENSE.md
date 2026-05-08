@@ -1,4 +1,4 @@
-
+rare Adobe Spark for macOS Extension | collaboration-tools + custom-filters offers the most advanced Adobe Spark for macOS extension, with collaboration-tools and custom-filters.
 
 
 
